@@ -1,2 +1,0 @@
-# Ramadan
-Ramadan Timings
